@@ -1,0 +1,1 @@
+# trick-magus.github.io
